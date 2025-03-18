@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding,Reading and listening to music
 - 🌱 I’m currently learning MEARN Stack Development
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me jyothisuresh0614@gmail.com
+- 📫 How to reach me jyothisuresh2521@gmail.com
 
 
 <!---
